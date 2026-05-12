@@ -1,4 +1,4 @@
-# 
+# sandwich attack bot premium Bot - gas-optimization and meme-coin-scanning is the best sandwich attack bot, featuring gas-optimization and meme-coin-scanning. Fast, smart, and
 
 
 
